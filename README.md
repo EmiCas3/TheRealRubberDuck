@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TheRealRubberDuck
+- 👀 I’m interested in Music
+- 🌱 I’m currently learning Web Development
+- 💞️ I’m looking to collaborate on...
+- 📫 How to reach me...
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I play the piano
